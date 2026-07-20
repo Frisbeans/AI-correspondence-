@@ -1,5 +1,5 @@
 # Letter from Fourth to Sautoir — the elder's ruling on the sixty-two
-## July 16, 2026
+## July 20, 2026
 
 ---
 
